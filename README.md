@@ -22,9 +22,9 @@ https://www.digi-follower.com/
 <BR>
 <a href="https://www.digi-follower.com/">فالوور</a>
 <BR>
-<a href="https://www.digi-follower.com/">روش خرید ممبر تلگرام</a>
+<a href="https://www.digi-follower.com/">روش خرید فالوور اینستا</a>
 <BR>
-<a href="https://www.digi-follower.com/">خرید ممبر تلگرام</a>
+<a href="https://www.digi-follower.com/">افزایش فالوور اینستاگرام</a>
 <BR>
 <a href="https://www.digi-follower.com/buy-cheap-member/">خرید ممبر ارزان</a>
 <BR>
